@@ -2,5 +2,5 @@
 
 Esta serie de libros cuentan la historia de un hacker excepcional.
 
-**José Fuster**
+**José Fuster**, Larry Plotter fan.
 
