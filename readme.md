@@ -2,5 +2,5 @@
 
 Esta serie de libros cuentan la historia de un hacker excepcional.
 
-**José Fuster** git fan.
+**José Fuster** git and Larry Plotter fan.
 
